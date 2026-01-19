@@ -1,2 +1,0 @@
-# Barbershop
-https://xfizz.cc/sublink/e7cvUJcZryUHct8QzCRXuDUN4kbBZX5LRkpA#6M:2941
